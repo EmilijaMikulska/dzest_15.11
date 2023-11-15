@@ -1,1 +1,1 @@
-#jcsj
+#pirms ši visu sapratu
